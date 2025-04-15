@@ -1,0 +1,1 @@
+# MyAlphabet-privacy-policy
